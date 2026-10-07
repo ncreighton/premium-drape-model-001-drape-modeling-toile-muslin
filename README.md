@@ -1,0 +1,2 @@
+# premium-drape-model-001-drape-modeling-toile-muslin
+Your toile muslin tests are scattered across notebooks, photos, and half-remembered notes—losing critical fit data before your pattern even reaches production. The Drape Modeling &amp; Toile Muslin Test Craft Lab transforms your chaotic drape experiments into a searchable, organized system that captures every iteration, measurement, and design decision
